@@ -1,2 +1,2 @@
 # lutfiwiranata
-Lutg.231.18.0086 - Lutfi Wiranata
+G.231.18.0086 - Lutfi Wiranata
